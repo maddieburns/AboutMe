@@ -12,4 +12,4 @@
     - Computer Science Software Development 
 ### Volunteer Work 
 - Teaching Clarinet Lessons to 6th Graders through the North Band Program
-- S.T.E.M. camp vo
+- S.T.E.M. Camp Volunteer Work
